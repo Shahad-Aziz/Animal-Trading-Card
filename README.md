@@ -1,2 +1,0 @@
-# Shahad-Almoajil
-Computer Science
